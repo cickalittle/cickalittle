@@ -1,1 +1,1 @@
-Hello! Im liukrast! i make minecraft fabric mods and im the leader of a Modding Community... join it!
+Hello! I am Cickalittle! I'm studing how to code in pyton and how make minecraft fabric mods!
